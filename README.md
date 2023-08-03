@@ -1,0 +1,1 @@
+# Statistics-for-Analytics-using-IBM-SPSS-Predicting-Intention-to-Use-Internet-Banking
